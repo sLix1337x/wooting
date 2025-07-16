@@ -1,16 +1,16 @@
-# ㊣ z3N -´ VXNØM v2+++ 
-→ Tachyon Mode  ~1.4ms 
+**z3N - VXNØM v2+++ v1**  
+`━━━━━━━━━━━━━━━━━━━━━━━`
 
-→ Actuation Point  ~3.7mm
-→ Rapid Trigger - ON
-           → 0.30mm
+✧ **Tachyon Mode**: `~1.4ms`  
+✧ **Actuation**: `~3.7mm`  
+✧ **Rapid Trigger**: `ON` » `0.30mm`  
+✧ **Gamepad Mode**: `ACTIVE`  
 
-→ Gamepad Mode - ON
+`—————————————————————`  
+`🔑 28764a3aa7d6fe5d00c513de7efa5f655c84`  
+`🍀️ sl.ix Classic VoL1 Wooting Profile`  
+`—————————————————————`  
 
-`28764a3aa7d6fe5d00c513de7efa5f655c84`
-→  **sLix Classic Vol.1** Wooting Profile :sponsors: 
-→ GG WWWWWW - Match History BEST PROFILE EU WEST
+`⚡ GG WWWWWW - Match History BEST PROFILE EU WEST`  
 
-             CHECK KEYBOARD LAYOUT
-
-:ddevs: :ddevs_halloween: :boost~5: :wootingfull:****
+**❗ CHECK KEYBOARD LAYOUT ❗** `🔥️`
