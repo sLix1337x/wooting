@@ -1,4 +1,4 @@
-🏆 CS2 GUARD – Die mogelfreie Counter-Strike Community 🏆 ([Discord-Invite-Link](https://discord.gg/32V9Q6uMg3))  
+## 🏆 CS2 GUARD – Die mogelfreie Counter-Strike Community 🏆 ([Discord-Invite-Link](https://discord.gg/32V9Q6uMg3))  
 Hier findest du **legitime Spieler**, **entspannte Teammates** und **kompetitive Premades** – **ohne Cheater, Toxicity oder Stress**.
 <img width="1248" height="520" alt="cs2guard banner SMALL6" src="https://github.com/user-attachments/assets/32848987-2e30-4bb4-b0e3-d94e8eb7f318" />
 
