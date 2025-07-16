@@ -17,3 +17,4 @@ Hier findest du **legitime Spieler**, **entspannte Teammates** und **kompetitive
 [**Jetzt beitreten**] ([Discord-Invite-Link](https://discord.gg/32V9Q6uMg3))  
 
 🔹 *„Keine Cheater. Kein Tox. Nur CS2, wie es die Entwickler wollten.“*  
+<img width="1248" height="520" alt="cs2guard banner SMALL6" src="https://github.com/user-attachments/assets/5592167a-d2ab-462e-8ed5-5afa87a4e70b" />
