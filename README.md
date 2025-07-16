@@ -13,4 +13,4 @@
 
 `⚡ GG WWWWWW - Match History BEST PROFILE EU WEST`  
 
-**❗ CHECK KEYBOARD LAYOUT ❗** `🔥️`
+**❗ CHECK KEYBOARD LAYOUT ITS MADE ON 60he❗** `🔥️`
