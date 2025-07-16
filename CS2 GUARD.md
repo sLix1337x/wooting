@@ -1,7 +1,6 @@
-<img width="1248" height="520" alt="cs2guard banner SMALL6" src="https://github.com/user-attachments/assets/32848987-2e30-4bb4-b0e3-d94e8eb7f318" />
-
 **Willkommen in der ersten CS2-Community, die Cheatern den Kampf ansagt!**  
-Hier findest du **legitime Spieler**, **entspannte Teammates** und **kompetitive Premades** – **ohne Cheater, Toxicity oder Stress**.  
+Hier findest du **legitime Spieler**, **entspannte Teammates** und **kompetitive Premades** – **ohne Cheater, Toxicity oder Stress**.
+<img width="1248" height="520" alt="cs2guard banner SMALL6" src="https://github.com/user-attachments/assets/32848987-2e30-4bb4-b0e3-d94e8eb7f318" />
 
 ## ✨ **Was dich erwartet:**  
 ✅ **Squad-Suche** für MM, Faceit & Premier  
