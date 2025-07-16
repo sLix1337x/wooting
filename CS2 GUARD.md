@@ -1,0 +1,19 @@
+**Willkommen in der ersten CS2-Community, die Cheatern den Kampf ansagt!**  
+Hier findest du **legitime Spieler**, **entspannte Teammates** und **kompetitive Premades** – **ohne Cheater, Toxicity oder Stress**.  
+
+## ✨ **Was dich erwartet:**  
+✅ **Squad-Suche** für MM, Faceit & Premier  
+✅ **Lob- & Report-System** gegen Cheater & Toxic Players  
+✅ **Tipps & Strategien** von erfahrenen Spielern (Rank + Erfahrung)  
+✅ **Regelmäßige Events**: Scrims, Turniere & Watchpartys  
+✅ **Strikte Fairplay-Regeln** – Für eine **saubere & kompetitive** Gaming-Umgebung  
+
+## 🚀 **Warum beitreten?**  
+- **Spiel mit Vertrauen**: Keine Zweifel, ob dein Gegner legit ist.  
+- **Finde gleichgesinnte Teammates** – ob Casual oder Tryhard.  
+- **Zero Toxicity**: Respekt & Teamplay stehen an erster Stelle.  
+
+👉 **Trete bei und spiel CS2, wie es sein soll**: **Fair. Kompetitiv. Mit Spaß.**  
+[**Jetzt beitreten**] ([Discord-Invite-Link](https://discord.gg/32V9Q6uMg3))  
+
+🔹 *„Keine Cheater. Kein Tox. Nur CS2, wie es die Entwickler wollten.“*  
